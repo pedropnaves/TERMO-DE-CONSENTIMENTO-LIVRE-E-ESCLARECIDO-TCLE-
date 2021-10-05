@@ -1,3 +1,5 @@
+# TERMO DE CONSENTIMENTO LIVRE E ESCLARECIDO (TCLE)
+
 Prezado participante,
 
 Você está sendo convidado para participar da pesquisa **Diagnóstico sobre a Educação Ambiental no contexto da Política Nacional de Recursos Hídricos - PNRH**. Este questionário faz parte de uma pesquisa científica de doutorado desenvolvida pelo aluno **João Gabriel de Paula Naves**, discente do Programa de Pós-Graduação em Geografia (PPGEO) da Universidade Federal de Uberlândia (MG) com o apoio do Conselho Nacional de Desenvolvimento Científico e Tecnológico (CNPq) sob orientação da Professora **Dra. Marlene Teresinha de Muno Colesanti**.
