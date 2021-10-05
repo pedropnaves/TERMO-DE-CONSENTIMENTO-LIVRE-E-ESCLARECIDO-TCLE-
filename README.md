@@ -41,7 +41,6 @@ Contatos:
 atendimentocep@propp.ufu.br
 
 Atenciosamente,
-![image](https://user-images.githubusercontent.com/6892513/136064203-f5614fcd-a7fb-4e22-aab8-f8e825f8c4d1.png)
 
 João Gabriel de Paula Naves
 
