@@ -37,7 +37,7 @@ Ao final da pesquisa, todo material será mantido em arquivo, por pelo menos 5 a
 Em caso de dúvida quanto à condução ética do estudo, entre em contato com o Comitê de Ética em Pesquisa da Universidade Federal de Uberlândia. O Comitê de Ética é a instância que tem por objetivo defender os interesses dos participantes da pesquisa em sua integridade e dignidade e para contribuir no desenvolvimento da pesquisa dentro de padrões éticos. Dessa forma o comitê tem o papel de avaliar e monitorar o andamento do projeto de modo que a pesquisa respeite os princípios éticos de proteção aos direitos humanos, da dignidade, da autonomia, da não maleficência, da confidencialidade e da privacidade.
 
 Contatos:
-(34) 3239-4131 
+(34) 3239-4131
 atendimentocep@propp.ufu.br
 
 Atenciosamente,
